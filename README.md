@@ -18,3 +18,5 @@ sdfnfgvc
 
 nkjdnvne
 dl
+
+bakalım neler olcak
