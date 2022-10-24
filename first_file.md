@@ -3,3 +3,7 @@ oıuhgvcd
 mbgfcd
 
 normalleştirelim..
+
+fklvmşls
+fmbmlcvşfmb
+yeterr
