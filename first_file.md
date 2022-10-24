@@ -7,3 +7,6 @@ normalleştirelim..
 fklvmşls
 fmbmlcvşfmb
 yeterr
+
+1654
+165
